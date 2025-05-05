@@ -1,1 +1,1 @@
-# Dxrkgoat
+# Dxrkgoat<discord>token</invite)
